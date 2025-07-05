@@ -1,1 +1,1 @@
-## wearable expressions
+## art meets fabric
